@@ -1,2 +1,2 @@
-![Image](https://github.com/user-attachments/assets/0a99a17e-da99-476a-9595-b9ec25ef5558)
-ㅤㅤㅤㅤㅤㅤㅤfor anyone who reads this
+![Image](https://github.com/user-attachments/assets/83aec2a6-2715-4b1f-94dd-f265b05c8326)
+ㅤㅤㅤㅤㅤㅤㅤTo whoever is reading this
